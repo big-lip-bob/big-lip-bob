@@ -1,3 +1,3 @@
-You won't find another me...
+Yeah, you think, you get it ? Cool
 
-<!-- Comment -->
+Fuck the System, Fuck the Rules!
